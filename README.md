@@ -38,4 +38,4 @@ Changes to this policy
 If this policy changes, we will update the “Last updated” date above and post
 the revised version at this same address.
 Contact
-Questions about this policy: takeshikaneshiro781@gmail.com
+Questions about this policy: gamedevwar25@gmail.com
